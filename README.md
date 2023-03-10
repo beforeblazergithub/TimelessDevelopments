@@ -1,3 +1,4 @@
 # TimelessDevelopments
-.gg/AMTGmEfH
-Made by cold ❔#0488, and BlazerHM#7782
+https://discord.gg/tetherunblocked
+Made by Chow and Tether.
+
