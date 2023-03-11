@@ -1,4 +1,4 @@
 # TimelessDevelopments
-https://discord.gg/tetherunblocked
-Made by Chow and Tether.
+https://discord.gg/tcdevs
+Made by Chow and Tethes, BlazerHM
 
